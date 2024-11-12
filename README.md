@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CamilaMartinez2
+- 👀 I’m interested in Recruiting Blockchain Developers or web3 talent
+- 📫 How to reach me: linkedin.com/in/camiamartinez2 
+- 😄 Pronouns: she/her
